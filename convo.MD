@@ -1,0 +1,22 @@
+**सूत्रधारः-- अलमनेन परिषत्कुतूहलविमर्दकारिणा परिश्रमेण। एवमहमार्यमिश्रान् प्रणिपत्य विज्ञापयामि यदिदं वयं मृच्छकटिकं नाम प्रकरणं प्रयोक्तुं व्यवसिताः। एतत्कविः किल-**
+
+- सूत्रधारः = the narrator
+- अलम् = enough
+- अनेन (परिश्रमेण) = by this (effort)
+- परिषत्-कुतूहल-विमर्द-कारिणा = परिषदि कुतूहलस्य विमर्दस्य कारिणा (परिश्रमेण) = by (the effort of) creating commotion in an assembly
+- परिश्रमेण = by the effort (of creating commotion in an assembly)
+- एवम् = thus
+- अहम् = I
+- आर्य-मिश्रान् = to congregation of gentlemen
+- प्रणिपत्य = प्रणामं कृत्वा = having saluted
+- विज्ञापयामि = विज्ञापनं करोमि = सूचयामि = i inform
+- यत् = which
+- इदम् = this
+- वयम् = We
+- मृच्छकटिकम् = मृदः शकटिकम् = the little clay cart
+- नाम = by name
+- प्रकरणम् = steps
+- प्रयोक्तुम् = to use
+- व्यवसिताः = undertaken
+- एतत्-कविः = एतस्य कविः = poet of this
+- किल = right?
