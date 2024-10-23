@@ -18,7 +18,7 @@
 - पातु = रक्षयतु = may he save
 - शून्य-ईक्षण-घटित-लय-ब्रह्म-लग्नः समाधिः = शून्यस्य(निराकारस्य) ईक्षणेन घटिते लये ब्रह्मणि लग्ना चित्तस्य एकाग्रता = concentration of consciousness in Brahma during the destruction caused by the witnessing of formlessness (of Lord Shiva)
 
-अपि च, --
+अपि च, --\
 **पातु वो नीलकण्ठस्य कण्ठः श्यामाम्बुदोपमः।\
 गौरीभुजलता यत्र विद्युल्लेखेव राजते॥२॥**
 - पातु = रक्षयतु = may he save
